@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mkhodaviren
-- 👀 I’m interested in have an online meeting in Social Science context.
+- 👀 I’m interested in have an online meeting with expert in Social Science context.
 - 🌱 I’m currently phd student. 
 - 💞️ I’m looking to collaborate on editing my working.
 - 📫 How to reach me
